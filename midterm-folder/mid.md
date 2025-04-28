@@ -1,1 +1,0 @@
-creating midterm folder
